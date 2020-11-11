@@ -1,1 +1,0 @@
-qwertyuiop10ekqwertyuiopasdfgh.github.io/Kdowmdmdkdoeosmdmdkd.html
